@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @porottasambar
-- 🌱 I’m currently learning a lot of stuffs
+- 🚴 learning++
+- 🇮🇳 🌴 Gods Own Country
+- 🏈 in my veins
 
 
 <!---
