@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @porottasambar
+- 👋 Hi,
 - 🚴 learning++
-- 🇮🇳 🌴 Gods Own Country
 - football in my veins
 
 
