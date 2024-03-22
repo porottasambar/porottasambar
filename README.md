@@ -1,6 +1,8 @@
-- 👋 Hi,
+- 👋 Hi there,
 - 🚴 learning++
-- football in my veins
+- ⚽ in my veins
+- 🏠 Under the sky
+- 🇪🇺
 
 
 <!---
